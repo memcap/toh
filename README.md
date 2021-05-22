@@ -1,6 +1,6 @@
 ### May Online Qigong Class: All About Digestion
 
-![All About Digestion](/assets/qi-gong-classes-604.jpg)
+![All About Digestion](https://raw.githubusercontent.com/memcap/toh/main/assets/qi-gong-classes-604.jpg)
 
 Digestive function is key to our health! In this transition between the seasons, let's learn some exercises and at-home tools to support our digestive organs, helping constipation, bloating, and heartburn.
 
