@@ -1,4 +1,6 @@
-### May Online Qigong Class: All About Digestion
+### May Online Qigong Class:
+
+#### All About Digestion
 
 ![All About Digestion](https://raw.githubusercontent.com/memcap/toh/main/assets/qi-gong-classes-604.jpg)
 
