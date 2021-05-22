@@ -1,1 +1,3 @@
-# Markdown in the browser\n\nRendered by **Memcap**.
+# Markdown in the browser
+
+Rendered by **Memcap**.
