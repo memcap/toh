@@ -1,4 +1,4 @@
-### May Online Qigong Class
+### June Online Qigong Class
 
 #### All About Digestion - Part II
 
