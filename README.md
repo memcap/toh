@@ -1,15 +1,15 @@
-### May Online Qigong Class:
+### May Online Qigong Class
 
-#### All About Digestion
+#### All About Digestion - Part II
 
 ![All About Digestion](https://raw.githubusercontent.com/memcap/toh/main/assets/qi-gong-classes-604.jpg)
 
-Digestive function is key to our health! In this transition between the seasons, let's learn some exercises and at-home tools to support our digestive organs, helping constipation, bloating, and heartburn.
+Digestive function is key to our health! We will introduce ways to support our digestive organs, strengthen meridian systems, and create a good routine practice.
 
 Join us live online or watch the recording at your convenience during the week.  Everyone is welcome!
 
-*    Wednesdays 7-8pm PST: 5/12, 5/19, & 5/26/21
-*    Single class: $20. Three class series: $45.
+*    Wednesdays 7-8pm PST: 6/7/21, 6/16/21, 6/23/21 & 6/30/21
+*    Single class: $20. Four class series: $60.
 *    We'll introduce ways to enhance and support our digestive organs while creating a good practice routine.
 
-[Click here to register!](https://docs.google.com/forms/d/e/1FAIpQLSd7DuS3-otimTopQfKmCji-ksMUVpuGilFd1Z_GQaEMezodOQ/viewform?vc=0&c=0&w=1&flr=0&gxids=7628&fbclid=IwAR27iM4Vf2M4UGxvKt6f8Sv10dcCzkMqmyYUCoDj7ezKwdRVSpEh2v025d4)
+[Click here to register!](https://docs.google.com/forms/d/e/1FAIpQLSe6JJrn18x_1zRjqnVEV894YC-dW2ukcocN8knIeF-JfDVhcg/viewform)
