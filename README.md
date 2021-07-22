@@ -1,15 +1,14 @@
-### June Online Qigong Class
+### July Online Qigong Class
 
-#### All About Digestion - Part II
+#### Body Strengthening and Cleansing - Part I
 
-![All About Digestion](https://raw.githubusercontent.com/memcap/toh/main/assets/qi-gong-classes-604.jpg)
+![All About Digestion](https://raw.githubusercontent.com/memcap/toh/main/assets/qi-gong-classes-640-001.jpg)
 
-Digestive function is key to our health! We will introduce ways to support our digestive organs, strengthen meridian systems, and create a good routine practice.
+Summer is the season with the most abundant yang energy when all living creatures prosper. Learn to integrate gentle exercise and yang style movements into your daily routine to nurture our yang Qi and to help body cleansing.
 
 Join us live online or watch the recording at your convenience during the week.  Everyone is welcome!
 
-*    Wednesdays 7-8pm PST: 6/7/21, 6/16/21, 6/23/21 & 6/30/21
-*    Single class: $20. Four class series: $60.
-*    We'll introduce ways to enhance and support our digestive organs while creating a good practice routine.
+*    Thursday 7-8pm PST: 7/15/21, 7/22/21 & 7/29/21
+*    Single class: $20. Four class series: $45.
 
-[Click here to register!](https://docs.google.com/forms/d/e/1FAIpQLSe6JJrn18x_1zRjqnVEV894YC-dW2ukcocN8knIeF-JfDVhcg/viewform)
+[Click here to register!](https://docs.google.com/forms/d/e/1FAIpQLSdVbd59rj7wgFhyh8b7t02iXdBfkNeanKpimmspRpxTc8o73A/viewform?fbclid=IwAR1HFwL3Xeg8balzS4Od7DjhpaQnFKd1qjPsqB1lXrJsbzq7CC37m4cImO4)
