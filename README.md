@@ -24,7 +24,7 @@ Join us live online or watch the recording at your convenience during the week. 
 
 #### Focus on the Breath
 
-![image](https://raw.githubusercontent.com/memcap/toh/main/assets/oct-gqong.png)
+![image](https://raw.githubusercontent.com/memcap/toh/main/assets/oct-gqong.jpg)
 
 Autumn is also the time for your lungs. In the month of October we will spend time to focus on your breath & letting go.
 
