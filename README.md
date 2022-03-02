@@ -2,22 +2,22 @@ Q: What is Qigong?
 
 A: Similar to Tai Chi, Qigong exercises integrate posture, gentle movement, breathing, and meditation. It helps to deepen the connection between mind and body and empowers the body's healing potential.
 
-* [December Online Qigong Class](#dec)
+* [March Online Qigong Class](#march)
 
 ---
 
-### <a name="dec"></a>December Online Qigong Class
+### <a name="march"></a>March Online Qigong Class
 
-#### Recharging Your Root
+#### Spring Cleansing
 
-![image](https://raw.githubusercontent.com/memcap/toh/main/assets/roots.jpg)
+![image](https://raw.githubusercontent.com/memcap/toh/main/assets/purple-flower.png)
 
-As we approach the winter solstice and the most yin, dark and restful time of year, let us spend time nourishing ourselves and replenish our reserves and root energies!
+This month we will focus on cleansing, balancing liver energy and reset! 
 
 Join us live online or watch the recording at your convenience during the week.  Everyone is welcome!
 
-*    Wednesday 7-8pm PST online: 12/8/21, 12/15/21 & 12/22/21
-*    Single class: $20. Four class series: $45.
+*    Wednesday 7-8pm PST online: 3/9/22, 3/16/22 & 3/30/22
+*    Single class: $20. Four class series: $60.
 
-[Click here to register!](https://docs.google.com/forms/d/1ajXoSYMOwR0osSznnYPcjuI11pZKxyHzaTp_gpTAjsY/viewform)
+[Click here to register!](https://docs.google.com/forms/d/e/1FAIpQLSepmXLM3LI23D0t9iEegNeztRSZJJJFeqDvQORppf1Nwvb1pw/viewform)
 
