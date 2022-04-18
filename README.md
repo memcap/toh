@@ -21,3 +21,5 @@ Join us live online or watch the recording at your convenience during the week. 
 
 [Click here to register!](https://docs.google.com/forms/d/e/1FAIpQLSe64Xg18_UEYMr2IKEgqcs2RObqOJftsGil7YLg1Izo6WFDhA/viewform)
 
+Notes: April classes will be pre-recorded and sent out on Wed 4/13, 4/20, 4/27/22 at PST 7pm.
+
