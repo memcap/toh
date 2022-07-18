@@ -2,24 +2,40 @@ Q: What is Qigong?
 
 A: Similar to Tai Chi, Qigong exercises integrate posture, gentle movement, breathing, and meditation. It helps to deepen the connection between mind and body and empowers the body's healing potential.
 
-* [April Online Qigong Class](#april)
+* [July-August Online Qigong Class](#july)
+* [NEW! In-Person Tai Chi & Qigong Classes](#new)
 
 ---
 
-### <a name="april"></a>April Online Qigong Class
+### <a name="july"></a>July-August Online Qigong Class
 
-#### Spring Cleansing II
+#### Grounding and Recharging
 
-![image](https://raw.githubusercontent.com/memcap/toh/main/assets/purple-flower.png)
+![image](https://raw.githubusercontent.com/memcap/toh/main/assets/sunflower.png)
 
-In the month of April, let us continue working on cleansing, balancing Liver and Pancreas energetic systems and resetting our body!  
+Gentle exercises, breathing, and meditation practices that help with stress, sleep, and energy! 
 
-Join us live online or watch the recording at your convenience during the week.  Everyone is welcome!
+Join us live online or watch the recording at your convenience during the week. Everyone is welcome!
 
-*    Wednesday 7-8pm PST online: 4/14/22, 4/21/22 & 4/28/22
-*    Single class: $20. Three class series: $45.
+*    Wednesday 7-8pm PST: 7/13, 7/20, 7/27, 8/3, 8/10, 8/17
+*    Single class: $20. Series of all six classes: $90.
 
-[Click here to register!](https://docs.google.com/forms/d/e/1FAIpQLSe64Xg18_UEYMr2IKEgqcs2RObqOJftsGil7YLg1Izo6WFDhA/viewform)
+[Click here to register!](https://docs.google.com/forms/d/e/1FAIpQLSfFu7t5_jJGRYH4T5lTmEXzFsQQAoqIKj2jTYYZA79A_zZKUg/viewform)
 
-Notes: April classes will be pre-recorded and sent out on Wed 4/13, 4/20, 4/27/22 at PST 7pm.
+---
+
+### <a name="new"></a>NEW! In-Person Tai Chi & Qigong Classes
+
+![image](https://raw.githubusercontent.com/memcap/toh/main/assets/qigon-in-person.png)
+
+*    Tai Chi Mondays: 7:30-8:30pm. Weekly classes begin 7/18/22
+*    Qigong Wednesdays: 5-6pm. Weekly classes begin 7/13/22
+
+Or more information about Zen Heart Center and to register, see [here](https://www.zenheartcenter.com/).
+
+Zen Heart Center in Downtown Bothell
+10127 Main Place, Suite B, Bothell WA 
+
+
+
 
