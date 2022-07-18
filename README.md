@@ -33,8 +33,8 @@ Join us live online or watch the recording at your convenience during the week. 
 
 Or more information about Zen Heart Center and to register, see [here](https://www.zenheartcenter.com/).
 
-Zen Heart Center in Downtown Bothell
-10127 Main Place, Suite B, Bothell WA 
+#### Zen Heart Center in Downtown Bothell
+* 10127 Main Place, Suite B, Bothell WA
 
 
 
